@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ideas32
-- 👀 I’m interested in survival minecraft, mechanical keyboards, and skiing
-- 🌱 I’m currently a middle school student in Redmond, WA, USA
+- 👀 I’m into mechanical keyboards, skiing, piano, and 3d printing
+- 🌱 I’m currently a high school student in Washington State
